@@ -1,3 +1,5 @@
+También he subido el Word de la práctica.
+
 Brainstorm
 
 -	Fórmula 1 
